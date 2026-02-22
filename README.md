@@ -17,8 +17,10 @@ https://brainrotcomics.com/
 https://manhuaus.com/
 https://www.mangaread.org
 https://likemanga.in/
+https://mangakatana.com/
 
 <b>Full Website Scan.</b>
 https://epicmanga.co/
 https://brainrotcomics.com/
 https://firescans.xyz/
+https://mangakatana.com/
